@@ -6,7 +6,7 @@ If you come from [LoyaltyShop](https://discord.gg/points) (best ssfn provider bt
 Thanks <3
 
 # Tutorial 
-[<img src="https://i.imgur.com/MNlMkoO.png" width="100%">](https://streamable.com/msvqca "Now in Android: 55")
+[<img src="https://i.imgur.com/MNlMkoO.png" width="100%">](https://streamable.com/nxkq8w "Now in Android: 55")
 
 
 
